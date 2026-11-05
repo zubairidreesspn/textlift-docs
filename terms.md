@@ -51,4 +51,4 @@ We may update these terms. The updated version will be published at this address
 
 ## 11. Contact
 
-Questions about these terms: zubairidreesspn@gmail.com
+Questions about these terms: support.aptitudedigital@gmail.com
