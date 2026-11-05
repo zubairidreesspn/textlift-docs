@@ -52,4 +52,4 @@ If this policy changes, the updated version will be published at the same addres
 
 ## 11. Contact
 
-Questions about this policy: zubairidreesspn@gmail.com
+Questions about this policy: support.aptitudedigital@gmail.com
